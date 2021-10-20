@@ -1,1 +1,1 @@
-# SMXM8UF2A04
+Aquestes el primer projecte de Lenny Tapias
